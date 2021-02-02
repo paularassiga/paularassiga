@@ -8,6 +8,6 @@
 - 👯 I’m looking to collaborate on more online projects!
 - 💬 Ask me anything (hopefully I will be able to help)
 - 📫 How to reach me: paularassiga@gmail.com
-- 😄 Pronouns: Pau, Pauli
+- 😄 Pronouns: Pau
 - ⚡ Fun fact: I actually prefer speaking spanish
 -->
